@@ -1,0 +1,245 @@
+Phipps Germany(德国菲浦斯)壁挂炉售后服务电话24小时客服报修：400-997-9097
+
+Phipps Germany(德国菲浦斯)壁挂炉售后服务24小时人工电话号码：400-997-9097
+
+线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用产品配件均为原厂直供， 我们追求「安全性」、「舒适性」、「方便性」、提供健康环保的商品。我们在「热能资源」与「人类生活」的调和方面，积累所有技术知识，为生活水平的提高和文明的进步作贡 服务区域：全市各区域均可上门维修，就近派单，60分钟内快速上门
+Phipps Germany(德国菲浦斯)壁挂炉贴心升级服务，现推出全国 24 小时服务热线 4009979097。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显方太对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源kxkxjfdgpghvv2026-07-08
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： thyri34/nfgggh@51ffbb6
+
+江苏电信 IPTV 直播源下载地址： melvingjgr/ushigx@b68213a
+
+江苏 IPTV 直播源： alexspv/rkgock@5a6552e
+
+安徽广电 IPTV 直播源下载地址： leissal/cbvfdr@1ebabbf
+
+海南电信组播 IPTV 直播源下载地址： duliuba69/arwjdb@03da970
+
+海南联通组播 IPTV 直播源下载地址： forusan/vjeqec@15f0636
+
+湖北 IPTV 直播源： tdillson57/svrzry@030a11d
+
+湖南电信组播直播源下载地址： coolarsmin/hikvvj@74fa499
+
+湖南电信 IPTV 直播源下载地址： sthxgeek/gqpefg@3071996
+
+湖南联通组播 IPTV 直播源下载地址： cameropan/hxnvnc@d497e5a
+
+湖南联通 IPTV 直播源下载地址： gtpgrande/zbaljd@c04e54b
+
+湖南移动 IPTV 直播源下载地址： erelstesh/xaknff@3128fe7
+
+湖南 IPTV 直播源： bennoren/npdcum@c80906b
+
+重庆移动组播直播源下载地址： mortonnbn/mfesda@adf0dfb
+
+重庆联通组播直播源下载地址： karlhoefer/htfbtq@6f35a21
+
+重庆联通直播源下载地址： saul2210/whiolz@3efc9b4
+
+重庆电信组播直播源下载地址： shadowlolf/pqlpks@4408702
+
+重庆电信直播源下载地址： oxhunger/zezqkj@d5bcc3a
+
+重庆 IPTV 直播源： thyri34/nfgggh@b2edbed
+
+四川移动组播 IPTV 直播源下载地址： duliuba69/arwjdb@8b2d888
+
+四川电信 IPTV 直播源下载地址： ashall-es/dvjeax@4dfcb0a
+
+四川电信 IPTV 组播直播源下载地址： nikoluta20/rueiqh@a384c4d
+
+四川广电 IPTV 直播源下载地址： alexspv/rkgock@1ee964b
+
+四川联通组播 IPTV 直播源下载地址： leissal/cbvfdr@7b1420f
+
+四川联通 IPTV 直播源下载地址： melvingjgr/ushigx@f736da7
+
+四川 IPTV 直播源： tdillson57/svrzry@616f301
+
+云南电信组播 IPTV 直播源下载地址： sthxgeek/gqpefg@e0ac569
+
+云南移动 IPTV 直播源下载地址： gtpgrande/zbaljd@85db0f6
+
+云南 IPTV 直播源： coolarsmin/hikvvj@a56eaa6
+
+贵州电信组播 IPTV 直播源下载地址： cameropan/hxnvnc@eba3703
+
+贵州移动 IPTV 直播源： forusan/vjeqec@a3849e6
+
+贵州联通组播 IPTV 直播源下载地址： karlhoefer/htfbtq@28b51dd
+
+贵州联通 IPTV 直播源下载地址： erelstesh/xaknff@86ff646
+
+贵州 IPTV 直播源： mortonnbn/mfesda@8765684
+
+福建联通组播 IPTV 直播源下载地址： saul2210/whiolz@64d7918
+
+福建联通 IPTV 直播源下载地址： thyri34/nfgggh@9f6fba3
+
+福建移动 IPTV 直播源下载地址： oxhunger/zezqkj@2bd4e5b
+
+福建电信组播 IPTV 直播源下载地址： bennoren/npdcum@32e3bd1
+
+福建电信 IPTV 直播源下载地址： duliuba69/arwjdb@6128612
+
+福建 IPTV 直播源： shadowlolf/pqlpks@a597201
+
+安徽移动 IPTV 直播源下载地址： ashall-es/dvjeax@cd04457
+
+安徽电信 IPTV 组播直播源下载地址： nikoluta20/rueiqh@c256877
+
+安徽电信 IPTV 直播源下载地址： melvingjgr/ushigx@bdc917f
+
+安徽联通 IPTV 直播源下载地址： leissal/cbvfdr@692eaa8
+
+安徽 IPTV 直播源： tdillson57/svrzry@d5f8fdf
+
+陕西地方台直播源下载地址： alexspv/rkgock@ad89714
+
+陕西电信组播 IPTV 直播源下载地址： sthxgeek/gqpefg@c84a914
+
+陕西电信 IPTV 直播源下载地址： cameropan/hxnvnc@5aa751d
+
+陕西移动组播 IPTV 直播源下载地址： erelstesh/xaknff@8facb4b
+
+陕西移动 IPTV 直播源下载地址： forusan/vjeqec@7ed7ca4
+
+陕西 IPTV 直播源： mortonnbn/mfesda@0e28592
+
+甘肃电信组播 IPTV 直播源下载地址： coolarsmin/hikvvj@055b54c
+
+甘肃移动 IPTV 直播源下载地址： duliuba69/arwjdb@6c4b3a7
+
+甘肃 IPTV 直播源： gtpgrande/zbaljd@1f65947
+
+山西移动组播 IPTV 直播源下载地址： karlhoefer/htfbtq@eb8eb98
+
+山西联通组播 IPTV 直播源下载地址： oxhunger/zezqkj@1d55c6e
+
+山西联通 IPTV 直播源下载地址： bennoren/npdcum@5c87c84
+
+山西 IPTV 直播源： ashall-es/dvjeax@356544a
+
+天津电信组播直播源下载地址： saul2210/whiolz@ca51573
+
+天津联通组播直播源下载地址： thyri34/nfgggh@2d06139
+
+天津 IPTV 直播源： alexspv/rkgock@2e36e8d
+
+上海移动直播源下载地址： shadowlolf/pqlpks@d05e25b
+
+上海联通组播直播源下载地址： leissal/cbvfdr@22961dc
+
+上海联通直播源下载地址： tdillson57/svrzry@88d83a1
+
+上海电信组播直播源下载地址： erelstesh/xaknff@61ee49a
+
+上海电信直播源下载地址： melvingjgr/ushigx@c9876d3
+
+上海 IPTV 直播源： nikoluta20/rueiqh@8564e85
+
+北京移动 IPTV 直播源下载地址： sthxgeek/gqpefg@2d656d2
+
+北京移动组播直播源下载地址： coolarsmin/hikvvj@9ae4b17
+
+北京电信组播 IPTV 直播源下载地址： forusan/vjeqec@741bbbb
+
+北京联通组播 IPTV 直播源下载地址： cameropan/hxnvnc@a43ca97
+
+北京联通 IPTV 直播源下载地址： duliuba69/arwjdb@89f36d0
+
+北京 IPTV 直播源： mortonnbn/mfesda@31e2b65
+
+部分地区的移动可全网通用： karlhoefer/htfbtq@53c805b
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： bennoren/npdcum@c941f26
+
+广播电台下载地址： saul2210/whiolz@94ac5c0
+
+国内景区直播源下载地址： oxhunger/zezqkj@7da3e35
+
+轮播华数黑莓下载地址： gtpgrande/zbaljd@e979c53
+
+台湾香港澳门电视台直播源下载地址： ashall-es/dvjeax@b7677b1
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： tdillson57/svrzry@369061f
+
+国外电视台直播源下载地址： thyri34/nfgggh@4770053
+
+卫视地方台安徽农大下载地址： shadowlolf/pqlpks@4fe3205
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： alexspv/rkgock@e8ce615
+
+卫视上海源下载地址： nikoluta20/rueiqh@2cf87d5
+
+卫视重庆广电 下载地址： leissal/cbvfdr@4794827
+
+卫视百视 TV 下载地址： melvingjgr/ushigx@a4339a8
+
+移动 IPv6 直播源下载地址： cameropan/hxnvnc@6a38b60
+
+国内电视台 IPv6 直播源下载地址： duliuba69/arwjdb@29946a9
+
+各大卫视、上千个地方台： erelstesh/xaknff@a3bc278
+
+国内电视台直播源下载地址： forusan/vjeqec@17111a9
+
+全国可用直播源： mortonnbn/mfesda@c996746
+
+包括完整内容所有已知频道： sthxgeek/gqpefg@1776855
+
+除成人内容以外的已知频道： coolarsmin/hikvvj@afc2ca4
+
+收集来自世界各地公开可用的 IPTV： gtpgrande/zbaljd@1865914
+
+稳定地址： saul2210/whiolz@c335e98
+
+2026-07-02 更新 CCTV 等世界杯相关 HD 播放源： karlhoefer/htfbtq@9a15fde
+
+2026-07-02 更新 IPTV 工具： oxhunger/zezqkj@a1c880b
+
+2026-07-02 更新世界各地 IPTV 频道： bennoren/npdcum@41ca206
+
+2026-07-02 更新全国可用直播源： tdillson57/svrzry@437c028
+
+新增各地运营商的 IPTV 地址： shadowlolf/pqlpks@d771f12
+
+插件推荐： nikoluta20/rueiqh@2d74388
+
+视频教程增加： leissal/cbvfdr@88e3af0
+
+咪咕源失效： ashall-es/dvjeax@9e1b659
+
+2026-07-02 更新各地运营商 IPTV 直播源： thyri34/nfgggh@c2ff1ef
+
+2026-07-02 更新台湾香港海外直播源： alexspv/rkgock@e1ee253
+
+新增辽宁广电直播源： cameropan/hxnvnc@7cc705b
+
+新增江西广电直播源： forusan/vjeqec@fd596b4
+
+新增湖北广电直播源： melvingjgr/ushigx@920813e
+
+新增中国广电 cctv + 卫视直播源： erelstesh/xaknff@9e51666
+
+新增辽宁电信 IPTV 直播源： duliuba69/arwjdb@6d8772d
+
+2026-07-02 更新台湾香港海外直播源： sthxgeek/gqpefg@c83de96
+
+新增辽宁移动直播源： oxhunger/zezqkj@dcb1db0
+
+新增浙江杭州华数 IPTV 直播源： saul2210/whiolz@4552b85
+
+新增广东联通 IPTV 直播源： mortonnbn/mfesda@fb7dd7e
+
+新增四川广电 IPTV 直播源： gtpgrande/zbaljd@6677700
+
+新增云南电信 IPTV 直播源： tdillson57/svrzry@f0d1ca5
+
+2026-07-02 更新国内电视台直播源： bennoren/npdcum@66c7f81
+
+新增福建电信 IPTV 直播
